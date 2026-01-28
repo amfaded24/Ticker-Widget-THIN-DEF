@@ -1,0 +1,1 @@
+# Ticker-Widget-THIN-DEF
